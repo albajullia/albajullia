@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @albajullia;
+- 👋🏼 Hi, I’m @albajullia;
 - 👀 I'm interested in becoming a reference engineer for women who dream of working in this area;
 - 🌱 I'm currently studying control and automation engineering;
 - 💞️ I want to collaborate with technological innovations in the area of ​​automation;
